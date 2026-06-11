@@ -16,3 +16,4 @@
 
 
 ![](https://media1.tenor.com/m/7Ti2r-e9xqUAAAAC/yugioh-redeyes.gif)
+![](https://media1.tenor.com/m/uEGvgTMmboUAAAAd/yugioh-yugioh-duel-monsters.gif)
