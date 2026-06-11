@@ -1,10 +1,18 @@
-# Ola meu nome e henrique fumagal 
-# Tenho 16 anos 🙇‍♂️   
-# Gosto de jogador bola, e jogos no meu computador🖥️
-# Minha comida favorita e lanche 🍔
-# Nas horas vagas ando de bicicleta 🚴‍♂️
-# Nos finais de semana gosto de sair🥳
+# Prazer, Henrique Fumagal:
+# 🚲 Gosto de andar de bike nas horas vagas
+# 🍔 Minha comida favorita é hambúrguer
+# 🎵 Curto ouvir rap e trap
+# ⚽ Gosto de jogar futebol com os amigos
+# 🎮 Meu jogo favorito é Minecraft
+
+## _Sou_Uma_Pessoa_:
+
+# • Determinado 🎯
+# • Sempre aprendendo 📚
+# • Em busca de novos desafios 🚀
+# • Vivendo um dia de cada vez ✨
 
 
 
-![https://media1.tenor.com/m/7Ti2r-e9xqUAAAAC/yugioh-redeyes.gif~] 
+
+![https://media1.tenor.com/m/7Ti2r-e9xqUAAAAC/yugioh-redeyes.gif]
