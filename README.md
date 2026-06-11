@@ -5,7 +5,7 @@
 # ⚽ Gosto de jogar futebol com os amigos
 # 🎮 Meu jogo favorito é Minecraft
 
-## _Sou Uma_ Pessoa_:
+# Sou uma pessoa:
 
 # • Determinado 🎯
 # • Sempre aprendendo 📚
